@@ -1,37 +1,14 @@
-## Welcome to GitHub Pages
+## Welcome!
 
-You can use the [editor on GitHub](https://github.com/HenrYxZ/wolh-statement-of-faith/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+We are students of the Word of Life Bible Institute Hungary. This webpage is to present our statement of Christian faith. Everything we have included here comes solely from our understanding of the Bible which is Gods own word to humans.  
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+The Gospel is the good news of Jesus Christ and how he died for our sin and rose from the dead. Because he paid the penalty for our sin, we can be justified and have eternal life with God. All we need to do to receive this salvation is to believe and to trust in Jesus Christ. This means knowledge of who Christ is, acceptance of his person and work, and trusting in Christ alone to save. 
 
-### Markdown
+### Bibliology
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/HenrYxZ/wolh-statement-of-faith/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+- We believe that the Scriptures are the Word of God and that human writers were inspired by the Holy Spirit to write every single word (2 Tim 3:16, 2 Pe 1:20-21). 
+- We believe that the Scriptures are powerful to change the human hard and is the revelation from God to the men. 
+- We believe that the original manuscript doesn’t have errors, everything that was written on it is the final authority of God, everything was written as it was meant and everything on it is true and profitable for the readers.
+- We believe that the Holy Spirit is the one that allows believers to understand the Scriptures (Jn 16:12-15, 1 Cor 2:9-3:2).
+- We believe that we can get to know God by his Word as he presents his attributes in the Scriptures, but we can’t fully understand or know him as he is eternal and infinite beyond our capacity.
+- We believe that the Scriptures are sufficient, there is no need for more revelation for the believers. 
