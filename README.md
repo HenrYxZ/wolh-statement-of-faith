@@ -1,10 +1,10 @@
-![Welcome Image](https://dc95wa4w5yhv.cloudfront.net/image-cache/bible-study_724_482_80.jpg)
-
 ## Welcome!
 
 We are students of the Word of Life Bible Institute Hungary. This webpage is to present our statement of Christian faith. Everything we have included here comes solely from our understanding of the Bible which is Gods own word to humans.  
 
-The Gospel is the good news of Jesus Christ and how he died for our sin and rose from the dead. Because he paid the penalty for our sin, we can be justified and have eternal life with God. All we need to do to receive this salvation is to believe and to trust in Jesus Christ. This means knowledge of who Christ is, acceptance of his person and work, and trusting in Christ alone to save. 
+The Gospel is the good news of Jesus Christ and how he died for our sin and rose from the dead. Because he paid the penalty for our sin, we can be justified and have eternal life with God. All we need to do to receive this salvation is to believe and to trust in Jesus Christ. This means knowledge of who Christ is, acceptance of his person and work, and trusting in Christ alone to save.
+
+![Welcome Image](https://dc95wa4w5yhv.cloudfront.net/image-cache/bible-study_724_482_80.jpg)
 
 ### Bibliology
 
