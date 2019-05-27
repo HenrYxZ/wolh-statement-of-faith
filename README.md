@@ -1,3 +1,5 @@
+![Welcome Image](https://dc95wa4w5yhv.cloudfront.net/image-cache/bible-study_724_482_80.jpg)
+
 ## Welcome!
 
 We are students of the Word of Life Bible Institute Hungary. This webpage is to present our statement of Christian faith. Everything we have included here comes solely from our understanding of the Bible which is Gods own word to humans.  
