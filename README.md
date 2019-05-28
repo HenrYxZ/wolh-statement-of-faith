@@ -61,25 +61,18 @@ We believe that
 ### Angelology
 
 We believe that
-- Angels are created beings. 
-- Angels are spirit beings but can be seen in human form and interact with humans.  
-- Angels have free will  
+- Angels are spiritual beings created by God
+- Angels can be seen in human form and interact with humans 
+- Angels are to worship and serve God, to be his messengers and to carry out God’s judgement 
+- Angels have free will
 - Angels are organized into ranks 
-- There are many angels, but we do not know exactly how many. 
-The function of angels   
-- Worship God 
-- Rejoice in God 
-- Serve God 
-- Carry out God’s judgement 
-- Messengers of God doing as he says 
-Demons (unclean spirits) 
-- Demons are fallen angels  
+- Demons (unclean spirits) are fallen angels  
 - Demons are actively opposing God using spiritual power 
-- Satan was a cherub who lead 1/3 of the angels in rebellion against God.  
-- Satan has free reign on the each currently to have power over and to deceive non-believers. 
+- Satan was a cherub who lead 1/3 of the angels in rebellion against God 
+- Satan has reign on the Earth currently to have power over and to deceive non-believers 
 - Satan will have control over the world during the period of tribulation 
-- God has ultimate authority over Satan and all the demons and protects believers from being possessed by demons.
-- Demons can possess unbelievers.
+- God has ultimate authority over Satan and all the demons and protects believers from being possessed by demons 
+- Demons can possess unbelievers 
 
 ### Christian anthropology, Hamartiology 
 
