@@ -9,7 +9,6 @@ The Gospel is the good news of Jesus Christ and how he died for our sin and rose
 ### Bibliology
 
 We believe that  
-
 - The Scriptures are the Word of God and that human writers were inspired by the Holy Spirit to write every single word (2 Tim 3:16, 2 Pe 1:20-21).
 - The Scriptures are powerful to change the human hard and is the revelation from God to the men. 
 - The original manuscript doesn’t have errors, everything that was written on it is the final authority of God, everything was written as it was meant and everything on it is true and profitable for the readers. 
@@ -20,7 +19,6 @@ We believe that
 ### Trinity 
 
 We believe that 
-
 - According to the Scripture, God is one (Deut 6:4; James 2:19) but at the same time, he exists in three different persons (Isaiah 48:16; John 1:1) 
 - The persons: God the Father (1Peter 1:2), God the Son (Jesus) (John 10:30), and God the Holy Spirit (1Corinthians 2:10) 
 - They are in complete unity (Matthew 3:16-17) 
@@ -40,14 +38,12 @@ We believe that
 ### Paterology
 
 We believe that
-
 - The Father is God, the first person of the trinity 
 - The Father is the most high
 
 ### Christology 
 
 We believe that 
-
 - Jesus Christ is perfect in deity and perfect in humanity 
 - He is eternal, omnipotent, sinless Son of God, the second person of the Trinity 
 - Jesus Christ is our lord and savior, who was born from virgin, crucified by the Romans and raised (bodily) from the dead on the third day 
@@ -57,14 +53,14 @@ We believe that
 ### Pneumatology 
 
 We believe that 
-
 - the Holy Spirit is divine, the third person of the Trinity 
 - Eternal, omnipotent, omnipresent, omniscience 
 - Every believer is the temple of the Holy Spirit, who seals the Christians for salvation 
 - The Holy Spirit protects, guides, teaches, confronts, convince, sanctify us and gives strength and gifts for Christian living
 
-### Angelology 
+### Angelology
 
+We believe that
 - Angels are created beings. 
 - Angels are spirit beings but can be seen in human form and interact with humans.  
 - Angels have free will  
@@ -88,7 +84,6 @@ Demons (unclean spirits)
 ### Christian anthropology, Hamartiology 
 
 We believe that 
-
 - God created the heavens and the earth (Gen 1:1) 
 - God created mankind good, men and women in his own image for a relationship with him  
 - After the rebellion of Adam and Eve mankind got separated from God, sin and death entered the world 
@@ -98,7 +93,6 @@ We believe that
 ### Soteriology 
 
 We believe that 
-
 - God is gracious and merciful, and he doesn’t gain pleasure in condemning sinners
 - The salvation of humans cannot be deserved. It’s God’s sovereign choice to show mercy to sinners.  
 - God freely and voluntarily made a way (only through Jesus Christ) to restore the broken relationship.   
@@ -111,7 +105,6 @@ We believe that
 ### Ecclesiology
 
 We believe that 
-
 - The Church began on the day of Pentecost as recorded in Acts 2 but before that, it was a mystery.
 - The Church is the body of Christ with Christ himself at the head.
 - The Church is distinct from the nation of Israel. 
@@ -126,7 +119,6 @@ We believe that
 ### Escathology 
 
 We believe that
-
 - there are 5 points of Escathology in which every Christian should agree. These are: 
   - death and a disembodied state, 
   - the return of Christ, 
