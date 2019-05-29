@@ -9,17 +9,17 @@ We are students of the Word of Life Bible Institute Hungary. This webpage is to 
 ### Bibliology
 
 We believe that  
-- The Scriptures are the Word of God and that human writers were inspired by the Holy Spirit to write every single word (2 Tim 3:16, 2 Pe 1:20-21).
+- The Scriptures are the Word of God and that human writers were inspired by the Holy Spirit to write every single word (2 Timothy 3:16, 2 Peter 1:20-21).
 - The Scriptures are powerful to change the human hard and is the revelation from God to the men. 
 - The original manuscript doesn’t have errors, everything that was written on it is the final authority of God, everything was written as it was meant and everything on it is true and profitable for the readers. 
-- The Holy Spirit is the one that allows believers to understand the Scriptures (Jn 16:12-15, 1 Cor 2:9-3:2) 
+- The Holy Spirit is the one that allows believers to understand the Scriptures (John 16:12-15, 1 Corinthians 2:9-3:2) 
 - We can get to know God by his Word as he presents his attributes in the Scriptures, but we cannot fully understand or know him as he is eternal and infinite beyond our capacity. 
 - The Scriptures are sufficient, there is no need for more revelation for the believers. 
 
 ### Trinity 
 
 We believe that 
-- According to the Scripture, God is one (Deut 6:4; James 2:19) but at the same time, he exists in three different persons (Isaiah 48:16; John 1:1) 
+- According to the Scripture, God is one (Deuteronomy 6:4; James 2:19) but at the same time, he exists in three different persons (Isaiah 48:16; John 1:1) 
 - The persons: God the Father (1Peter 1:2), God the Son (Jesus) (John 10:30), and God the Holy Spirit (1Corinthians 2:10) 
 - They are in complete unity (Matthew 3:16-17) 
 - God is  
@@ -42,11 +42,11 @@ We believe that
 - The Father is the most high
 - He has names that describe his attributes: 
   - Elohim (the strong, leader, the sovereign God of creation) 
-  - Jahve (who was, is, and will be) 
+  - Yahweh (who was, is, and will be) 
   - Adonai (Lords, masters, owners) 
   - God (Theos)  
   - Lord (Kurios) (John 4:11) 
-  - Master (Despota) (owner) (2Peter 2:1) 
+  - Master (Despota) (owner) (2 Peter 2:1) 
   - Father (James 1:17) 
 - The Father of Jesus and us 
 - The Creator and Ruler of all 
@@ -130,7 +130,7 @@ We believe that
   - a final eternal state.
 - After death believer’s souls go to the presence of the Lord and their bodies wait until the resurrection (Luke 23:43).
 - At the resurrection the body of dead believers will come to life in a glorified body just as Christ was raised from the dead. 
-- We believe that there will be a rapture of the church before the 7-year tribulation period. The living Christians will meet the Lord in the clouds and the dead Christians will be raised (1 Thessalonians 4:13-18). This tribulation is the 70th week of Daniel 9 and the antichrist will establish a covenant with Israel at the beginning of the tribulation and in the middle of the 7 years he will defile the temple and stop the sacrifices. At the end of this, the millennial kingdom of Christ will be established (Rev 20:2-7). This will be the fulfillment of the Davidic Covenant which says that there will be a righteous king that would rule forever in Israel and there will be believers from all dispensations in there. 
+- We believe that there will be a rapture of the church before the 7-year tribulation period. The living Christians will meet the Lord in the clouds and the dead Christians will be raised (1 Thessalonians 4:13-18). This tribulation is the 70th week of Daniel 9 and the antichrist will establish a covenant with Israel at the beginning of the tribulation and in the middle of the 7 years he will defile the temple and stop the sacrifices. At the end of this, the millennial kingdom of Christ will be established (Revelations 20:2-7). This will be the fulfillment of the Davidic Covenant which says that there will be a righteous king that would rule forever in Israel and there will be believers from all dispensations in there. 
 - The millennial kingdom will be righteous and peaceful, and it will be literally for 1000 years (Isaiah 11:3-7).
 - At the end of the millennium Satan will be released and will be thrown to the Lake of Fire for forever and there will be a final judgement.
-- After this there will be new heaven and new earth and there will be an eternal state without sin (Re. 21-22). 
+- After this there will be new heaven and new earth and there will be an eternal state without sin (Revelations 21-22). 
