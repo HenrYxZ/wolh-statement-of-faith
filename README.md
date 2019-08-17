@@ -87,7 +87,7 @@ We believe that
 ### Christian anthropology, Hamartiology 
 
 We believe that 
-- God created the heavens and the earth (Gen 1:1).
+- God created the heavens and the earth (Genesis 1:1).
 - God created mankind good, men and women in his own image for a relationship with him.
 - After the rebellion of Adam and Eve, mankind got separated from God and sin and death entered the world.
 - Sin is everything that contradicts God’s original, perfect design (against God).
