@@ -72,7 +72,7 @@ We believe that
 
 We believe that
 - Angels are spiritual beings created by God.
-- Angels can be seen in human form and interact with humans.
+- Angels can be seen in human form and interact with humans (Revelations 21:17).
 - Angels are to worship and serve God, to be his messengers, and to carry out God’s judgement.
 - Angels have free will.
 - Angels are organized into ranks.
